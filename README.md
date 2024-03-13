@@ -4,5 +4,5 @@
 - 💞️ I’m working on a collaboration project for a protothon 
 - 📫 How to reach me haile.r@northeastern.edu
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am apart of the Northeastern EESA (Ethiopian Eritrean Student Association) Dance Team 
+- ⚡ Fun fact: I am apart of the Northeastern EESA (Ethiopian Eritrean Student Association) Dance Team!
 
